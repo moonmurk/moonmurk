@@ -1,4 +1,13 @@
-## Hi there 👋
+## *if you feel it, chase it!*
+
+
+> you can call me **salem**, **grey**, **merlin**, or really anything as long as i know you mean me! all members of the system will respond to these names
+
+> *when wearing morphs with the **sys** tag, you can use our collective names or the name of the morph*
+
+---
+
+wip
 
 <!--
 **moonmurk/moonmurk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
