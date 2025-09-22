@@ -11,9 +11,9 @@
 ---
 
 #### interests *!!*
-> hockey, ***homestuck***, ***supernatural (cw)***, ***spreadsheets***, ***fanfiction***, merlin, ***twisters 2024***, ***tornadoes***, psych (2006), soul eater, trigun, rwby, tma, mcu, dc (yj & the flash (cw), suits (show), flight rising, bones (show), bones (dead things), overwatch & more!
+> hockey, ***homestuck***, ***supernatural (cw)***, ***spreadsheets***, ***fanfiction***, merlin, ***twisters 2024***, ***tornadoes***, psych (2006), soul eater, trigun, rwby, tma, mcu, dc (yj & ***the flash (cw)***, suits (show), flight rising, bones (show), bones (dead things), overwatch & more!
 
-> *the above is a list of current main & background interests; it will be updated periodically based on current hyperfixations! emphasized items are major spinterests*
+> *the above is a list of current main & background interests; it will be updated periodically based on current hyperfixations! emphasized items are major or active spinterests*
 
 ---
 
