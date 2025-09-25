@@ -2,9 +2,9 @@
 
 ![moon phases](moonphase.png)
 
-> you can call me **salem**, **grey**, **merlin**, or really anything as long as i know you mean me! all members of the system will respond to any of these names & any pronouns. you can usually find us on one of the benches in homestuck corner
+> you can call me **salem**, **grey**, or really anything as long as i know you mean me! all members of the system will respond to any of these names & any pronouns. you can usually find us on one of the benches in homestuck corner or under a tree in the marvel/dc area! typically on w2i as we tab hop/do things on our phone, so we're somewhat liable to miss non-whisper messages.
 
-> *when wearing morphs with the **sys** tag, you can use our collective names or the name of the morph*
+> *morphs with the **sys** tag on are typically introjects*
 
 
 
