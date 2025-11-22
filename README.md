@@ -2,7 +2,7 @@
 
 ![moon phases](moonphase.png)
 
-> you can call me **salem**, **grey**, or really anything as long as i know you mean me! all members of the system will respond to any of these names & any pronouns. you can usually find us on one of the benches in homestuck corner or under a tree in the marvel/dc area! typically on w2i as we tab hop/do things on our phone, so we're somewhat liable to miss non-whisper messages.
+> you can call me **salem**, **grey**, or really anything as long as i know you mean me! all members of the system will respond to any of these names & any pronouns. you can usually find us in homestuck corner or in the marvel/dc area! typically tab hop/do things on our phone, so we're somewhat liable to miss non-whisper messages.
 
 > generally not great at conversations/knowing how to respond to things, but messages are always welcome! if i don't respond, it's usually because i'm not sure what to say/have nothing to add; i'm not trying to ignore you!
 
